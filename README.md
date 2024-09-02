@@ -144,6 +144,8 @@
 > \> **Making a Changeling** <br />
 > [You don't think about it](https://cubbihue.tumblr.com/post/759111792228237312/please-tell-changeling-timmy-i-he-also) <br 
 />
+> ["YES, AND"](https://cubbihue.tumblr.com/post/759133100616876032/kinda-love-that-the-changeling-was-meant-to-be-a) <--------------------------------------- NEW! <br 
+/> 
 > [He's just Timmy Turner](https://cubbihue.tumblr.com/post/758939675274690560/oooh-whats-changeling-timmy-like-are) <br 
 /> 
 > [Relationships?](https://cubbihue.tumblr.com/post/758943945615114240/oh-god-the-changelings-not-going-to-have-kids-is) <br 
