@@ -63,14 +63,14 @@
 &nbsp;&nbsp;  Alt AU<br />
 └─────┘<br />
 
-> **Fairy Dev Dimmadome** <br />
+> \> **Fairy Dev Dimmadome** <br />
 > [Hypothetical Fairy]( https://cubbihue.tumblr.com/post/759656260870324224/fully-a-hypothetical-what-would-dev-look-like-as) <br 
 />
 > [His Hair](https://cubbihue.tumblr.com/post/759666579838517248/in-the-very-hypothetical-situation-where-dev-is) <br />
 
 <br />
 
-> **Evil Timmy** <br />
+> \> **Evil Timmy** <br />
 > [Brat](https://cubbihue.tumblr.com/post/760136186962526208/omg-an-au-of-an-au-featuring-antagonist-timmy-i) <br />
 
 <br />
@@ -141,7 +141,7 @@
 &nbsp;&nbsp;  Changeling Lore <br />
 └───────────┘<br />
 
-> **Making a Changeling** <br />
+> \> **Making a Changeling** <br />
 > [You don't think about it](https://cubbihue.tumblr.com/post/759111792228237312/please-tell-changeling-timmy-i-he-also) <br 
 />
 > [He's just Timmy Turner](https://cubbihue.tumblr.com/post/758939675274690560/oooh-whats-changeling-timmy-like-are) <br 
@@ -154,7 +154,7 @@
      
 <br />
 
-> **Changeling Timmy Traits** <br />
+> \> **Changeling Timmy Traits** <br />
 > [Love?](https://cubbihue.tumblr.com/post/759472316808937473/so-like-if-someone-was-to-try-to-hit-on) <br 
 />
 > [Aromantic?](https://cubbihue.tumblr.com/post/760026392305041408/is-changeling-timmy-aromantic-or-is-there) <br 
@@ -171,7 +171,7 @@
 &nbsp;&nbsp;  Timmy Lore <br />
 └────────┘ <br />
 
-> **Fairy Consequences** <br />
+> \> **Fairy Consequences** <br />
 > [Information Overflow](https://cubbihue.tumblr.com/post/760133275761115136/knowing-what-he-knows-now-timmy-would-never) <br 
 />
 > [Changes, FOR A NEW FAMILY](https://cubbihue.tumblr.com/post/760381180151496705/wait-why-wouldnt-timmy-recommend-godkids-becomin) <br 
@@ -184,7 +184,7 @@
 
 <br />
 
-> **Fairy Traits** <br />
+> \> **Fairy Traits** <br />
 > [Timmy is a Pixie](https://cubbihue.tumblr.com/post/759938598800883712/since-timmy-is-fairy-now-does-that-mean-he-have) <br 
 />
 > [His Fairy Age](https://cubbihue.tumblr.com/post/759771726593818624/do-you-sleep-with-how-much-you-post-also-how-long) <br 
@@ -202,13 +202,13 @@
 &nbsp;&nbsp;  Peri Lore <br />
 └──────┘ <br />
 
-> **Magic Deficient** <br />
+> \> **Magic Deficient** <br />
 > [Gifted Kid Burnout](https://cubbihue.tumblr.com/post/758586494704336896/im-combining-my-two-favorite-peri-hcs-into-one) <br 
 />
 
 <br />
 
-> **Chosen Godchild** <br />
+> \> **Chosen Godchild** <br />
 > ???????????
 
 <br />
@@ -333,12 +333,12 @@
 /> 
 > [The Fairy Olympics](https://cubbihue.tumblr.com/post/759838305096531968/can-we-have-fairy-timmy-finally-participating-at) <br />
 >
-> : : **Disguise** : :
-> * [HP Is *Very* Patient](https://cubbihue.tumblr.com/post/759855901276504064/we-know-how-timmy-and-sanderson-feel-about-each) <br 
+> : : **Disguise** : : <br />
+> \> [HP Is *Very* Patient](https://cubbihue.tumblr.com/post/759855901276504064/we-know-how-timmy-and-sanderson-feel-about-each) <br 
 /> 
-> * [Timmy Or Sanderson?](https://cubbihue.tumblr.com/post/759833458094833664/do-sanderson-and-timmy-have-a-similar-office) <br 
+> \> [Timmy Or Sanderson?](https://cubbihue.tumblr.com/post/759833458094833664/do-sanderson-and-timmy-have-a-similar-office) <br 
 />
-> * [Only HP Knows](https://cubbihue.tumblr.com/post/759860959914409984/i-have-a-feeling-timmy-now-gets-pixie-customs-more) <br 
+> \> [Only HP Knows](https://cubbihue.tumblr.com/post/759860959914409984/i-have-a-feeling-timmy-now-gets-pixie-customs-more) <br 
 />
 >
 > [Nepo Baby Coffee Break](https://cubbihue.tumblr.com/post/760022692171857920/cool-it-timmy-youre-starting-to-give-nepo-baby) <br 
@@ -389,8 +389,8 @@
 />
 
 <br />
-
-> **Cosmo's Advice** <br />
+    
+> \> **Cosmo's Advice** <br />
 > [Have You Tried Fair Food?](https://cubbihue.tumblr.com/post/759356949022343168/i-imagine-timmy-might-plant-the-idea-of-getting) <br 
 />
 > [Not Ready To Be A Dad](https://cubbihue.tumblr.com/post/759952408889720832/cosmo-cosmo-buddy-peris-twenty-two-the) <br 
