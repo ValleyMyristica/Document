@@ -68,6 +68,7 @@
 />
 > [His Hair](https://cubbihue.tumblr.com/post/759666579838517248/in-the-very-hypothetical-situation-where-dev-is) <br />
 
+<br />
 
 > **Evil Timmy** <br />
 > [Brat](https://cubbihue.tumblr.com/post/760136186962526208/omg-an-au-of-an-au-featuring-antagonist-timmy-i) <br />
@@ -111,6 +112,8 @@
 />
 > [Part 4](https://cubbihue.tumblr.com/post/760479438086537216/most-amount-of-swaps-in-recorded-history-just-how) <br 
 />
+
+<br />
 
 > **Peri and Irep** <br />
 > [Part 1](https://cubbihue.tumblr.com/post/760007792729915392/cosmo-and-anti-cosmo-has-the-most-amount-of-swaps) <br />
@@ -160,10 +163,10 @@
 /> 
 > [What about his Friends?](https://cubbihue.tumblr.com/post/759318610905825280/i-imagine-that-timmys-parents-didnt-notice) <br 
 /> 
-> [-Memory-](https://cubbihue.tumblr.com/post/759237533584556032/what-happens-if-a-changeling-meets-the-person)<br />
-     
+> [-Memory-](https://cubbihue.tumblr.com/post/759237533584556032/what-happens-if-a-changeling-meets-the-person)<br /> 
 
 <br />
+
 ┌────────┐<br />
 &nbsp;&nbsp;  Timmy Lore <br />
 └────────┘ <br />
@@ -203,6 +206,8 @@
 > [Gifted Kid Burnout](https://cubbihue.tumblr.com/post/758586494704336896/im-combining-my-two-favorite-peri-hcs-into-one) <br 
 />
 
+<br />
+
 > **Chosen Godchild** <br />
 > ???????????
 
@@ -215,6 +220,7 @@
 ┌─────────────────┐<br />
 &nbsp;&nbsp; Baby Peri & Human Timmy <br />
 └─────────────────┘ <br />
+
 [Cookies](https://cubbihue.tumblr.com/post/758956448082444288/loving-your-changing-fairy-timmy-au-also-i-gotta) <br 
 />
 [Newborn Peri](https://cubbihue.tumblr.com/post/760207483744731136/since-the-fairies-are-so-tiny-in-this-au-how) <br 
@@ -233,11 +239,13 @@
 />
 [Leaving The Changeling](https://cubbihue.tumblr.com/post/759494122707025920/how-did-og-timmy-feel-about-leaving-changeling) <br 
 />
+
 <br />
 
 ┌──────────────┐<br />
 &nbsp;&nbsp; Changeling On Earth<br />
 └──────────────┘<br />
+
 [Babysitter Moving](https://cubbihue.tumblr.com/post/760393148465823744/hey-i-love-how-you-do-with-fairy-timmy-au-my) <br 
 />
 [Teacher Retired](https://cubbihue.tumblr.com/post/760491899969847296/okay-since-nobodys-asked-up-until-this-point-i) <br 
@@ -249,8 +257,8 @@
 
 ┌───────────────┐<br />
 &nbsp;&nbsp; Moving to Fairy World<br />
-└───────────────┘<br 
-/>
+└───────────────┘<br />
+
 [Welcome Home Timmy](https://cubbihue.tumblr.com/post/759043632748740608/thank-you-for-replying-to-my-last-ask-i-loved-it) <br 
 />
 [Regret?](https://cubbihue.tumblr.com/post/759942347145494528/how-do-you-think-did-timmy-from-time-to-time) <br 
@@ -262,8 +270,7 @@
 [Always Together](https://cubbihue.tumblr.com/post/759768600810766336/how-old-were-timmy-poofperi-when-they) <br />
 
 
-> **Learning To Fly** <br 
-/>
+> **Learning To Fly** <br />
 > [Part 1](https://cubbihue.tumblr.com/post/759140246774546432/hello-love-your-art-style-and-little-fop-au) <br 
 />
 > [Part 2](https://cubbihue.tumblr.com/post/759140581423431680/how-did-cosmo-and-wanda-catch-timmy-when-he-was) <br 
@@ -343,6 +350,8 @@
 > [I Miss My Wife](https://cubbihue.tumblr.com/post/760496597647933440/cosmo-anytime-hes-away-from-wanda-i-miss-my) <br 
 />
 
+<br />
+
 > ## **Peri's Adult Life** <br />
 > [Flying? The Bus Is Better](https://cubbihue.tumblr.com/post/759009339097890816/why-is-flying-a-sore-spot-for-peri) <br />
 > 
@@ -378,6 +387,8 @@
 />
 > [Part 4](https://cubbihue.tumblr.com/post/759284304033529856/people-will-probably-think-peri-is-a-doll-dev-put) <br 
 />
+
+<br />
 
 > **Cosmo's Advice** <br />
 > [Have You Tried Fair Food?](https://cubbihue.tumblr.com/post/759356949022343168/i-imagine-timmy-might-plant-the-idea-of-getting) <br 
